@@ -4,7 +4,7 @@
 
 Entry for the make.fun bounty [Famous Last Words: The Funniest Epitaph](https://make.fun/bounty/u-riidzhsn-famous-last-words-the-funniest-epitaph-ff177406).
 
-> Here lies a man who finally finished his to-do list. It only took dying. Tell my inbox I won.
+> Finally finished my to-do list. It only took dying. Tell my inbox I won.
 
 ## Run
 
